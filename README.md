@@ -48,7 +48,7 @@
 
 📫 Reach Me
 
-- 📧 themasujith@gmail.com
+- 📧 thehemasujith@gmail.com
 
 ---
 
